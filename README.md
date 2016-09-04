@@ -1,0 +1,2 @@
+# legendrkq.github.io
+blog
